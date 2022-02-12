@@ -1,2 +1,2 @@
-# Gymps
- Ape Stonk
+# GymChimps
+
